@@ -211,4 +211,4 @@ NTI JewelCase Maker is the full free version with all features and updates inclu
 Don't wait any longer! Download NTI JewelCase Maker today and start creating beautiful, custom covers for your media collection!
 
 ---
-**Last updated:** 2026-09-18 22:11:12 UTC
+**Last updated:** 2026-09-19 00:53:35 UTC
